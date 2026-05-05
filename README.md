@@ -1,4 +1,4 @@
-# Zarifeemutlu-#
+# Zarifeemutlu-
 
 # 💫 About Me:
 Frontend developer in progress 🚀<br>HTML | CSS | JavaScript<br>Learning by building.
