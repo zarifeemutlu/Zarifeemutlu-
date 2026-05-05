@@ -24,10 +24,7 @@
 
 ### 📫 Bana Ulaşın
 
-- 📧 E-posta: [zarifemutlux@gmail.com]<img width="1920" height="1200" alt="230289" src="https://github.com/user-attachments/assets/9080fea6-7643-4fbf-93c7-5eb6cc9afb45" />
-
-  
-
+- 📧 E-posta: [zarifemutlux@gmail.com]
 ---
 
 <p align="center">
